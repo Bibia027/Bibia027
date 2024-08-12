@@ -5,5 +5,8 @@
 
 Here are some ideas to get you started:
 
-- 🌱 I’m currently learning on Alura
+- 🌱 I’m currently learning on [Alura](https://www.alura.com.br)
 - 💕 I Have 16 years old
+- For you to contact me💙
+
+- annabeatryzsouza15@gmail.com
